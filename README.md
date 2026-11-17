@@ -1,1 +1,0 @@
-# klenda-recursos
